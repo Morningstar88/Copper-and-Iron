@@ -4,6 +4,10 @@ Been eating tons of Basil. Feel amazing.
 Big copy paste from GLP. Parse it later. 
 
 ********************************
+Thus, it can be stated with certainty that copper is the single most important nutrient in the body. This is why copper is the target for deprivation and depletion.
+
+********************************
+
 
 https://www.godlikeproductions.com/forum1/message4799117/pg1
 
