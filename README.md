@@ -542,3 +542,583 @@ Disclaimer / Copyright Info  -  Privacy Policy  -  Terms Of Use -  Cancellation 
 Mail Webmaster with questions or comments about this site.
 Copyright © 1999 - 2024 Godlikeproductions.com
 Page generated in 0.021s (6 queries)
+
+*
+
+Godlike Productions - Discussion Forum
+Users Online Now: 891 (Who's On?)	Visitors Today: 99,450
+Pageviews Today: 188,445	Threads Today: 65	Posts Today: 1,275
+03:39 AM
+
+Directory
+Adv. Search
+Topics
+Forum
+
+
+
+
+Back to Forum
+Post New Thread
+Reply
+View Favorites
+
+Join Now, Free! (& No Ads!) Forgot Your Password?
+Email
+Password
+Remember
+
+Rate this Thread
+Absolute BS Crap Reasonable Nice Amazing
+ 
+Page 1 2 3 4BottomSearch RepliesPrevious PageNext Page
+Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types! 
+Nicolemare
+Offer Upgrade
+
+
+User ID: 20291783
+ United States
+07/23/2012 07:48 AM
+Report Abusive Post
+Report Copyright Violation	
+Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+I was doing some blood typing research and came across this article that i have linked below...
+
+This is a theory I had not heard of and was wondering how credible this information may be... I did find it very interesting to say the least. Heres the first couple paragraphs. It is kinda long but IMO worth the read...]
+
+Iron is NOT a nutrient, it is a poison. Iron replaces copper in the blood and tissue proteins and accumulates in
+multiple locations of the body, causing destruction and
+accelerating aging. Bio-available copper must be
+replenished to restore health and longevity – to repair the
+DNA damage.
+
+The average blood pH in the late 1800’s ranged from 7.38-7.40 (Ref 19). Approximately during the turn of the 20th century in 1900, there appears to have been a blood pH increase, and may be when the pH was initially increased to 7.40. According to the American Heart Association, since 1900, "coronary heart disease has accounted for more deaths than any other cause or group of causes of death in the United States". In 1980 the average alkaline blood pH was set up to 7.43, and is the marker for peak U.S. population numbers due to the initial stage of population reduction, (Ref: Population Reduction Chart). The set-up to critical 7.43 would have been initiated in about 1976. The 7.43 pH level is adjacent to 7.45, the next life critical level, and would explain the steady increase in total number of deaths and declining births beginning in 1980. (Note: the year 1980 marks the peak population for the national numbers. For those states with a current official death rate of 10, the population peaked in 1967 due to an earlier population reduction schedule, set up in 1993.) The final extermination phase was initiated in 1996 and set up in 2006 at the pH level of 7.54, adjacent to the next life-critical level of 7.55 pH. This final phase of extermination marked the beginning of exploding disease prevalence, and can be researched from national health statistics data.
+
+The Population Reduction Chart data estimates it takes about 26 years to set up the blood pH to 7.54. Then, between the 4th and 5th year of the pH set-up, the population reduction rate of about .5% per year is established, in this stage of the extermination schedule. Thus, it takes about 29-30 years to go from peak population numbers to a 0.5% annual reduction. At the 30 year point the death rate is approaching 14-15 in this stage, resulting in a yearly population reduction rate of between 0.5 - 1 %. The official population numbers conceal this reduction by inflating the total numbers, starting in 1980, by exaggerating the number of births. Calculate the actual population numbers by decreasing 1% each year start with 70% of the official 2010 numbers, 71% of 2009 numbers, etc. The U.S. population peaked at about 227 million in 1980, and is currently at about 214 million, a decrease of 5.7%. Death Rate: The reported death numbers appear to be valid up until 2006, when the final extermination phase was set up. The official death numbers for 2006 and later are understated. The death estimates for these years were calculated by using a state with an earlier extermination schedule as reference, by aligning the state and national schedules, and Census 2010 adjustments. The current death rate as of December 2011 is estimated at 14, not the official rate of 7.8.
+
+Continue Reading... [link to www.unveilingthem.com]
+~"For the total development of the human being, solitude as a means of cultivating sensitivity becomes a necessity. One has to know what it means to be alone, what it is to meditate, what it is to die; and the implications of solitude, of meditation, of death, can be known only by seeking them out. These implications cannot be taught, they must be learned."
+- Krishnamurti ~
+Sponsored by RevcontentTrending Now
+nope
+User ID: 16503210
+ United States
+07/23/2012 09:31 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+This was an incredible read, although I was initially put off by the religous bent,the physical science of the argument made perfect sense. I'm going out to find a copper supplement!
+Anonymous Coward
+User ID: 996508
+ United Kingdom
+07/23/2012 09:36 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+whilst intresting it is a fact that i have taken 200mg ferrous sul[phate for 2 daily for 2 years. i am vastly better.
+
+i lose blood cells due to rare disease and skin issues
+
+hb is around 16 - very good
+
+someone once demonstrated to me that hb of 18 means you can affect things around you - that's starting to happen - including women by the way !!!
+
+eg doors and basic devices jam up alot
+
+who knows
+
+but poison is a bit strong
+Anonymous Coward
+User ID: 1578124
+ United States
+07/23/2012 09:39 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+I'm a normal, healthy woman who tends to run slightly anemic. During both my pregnancies, the doctors wanted me to take iron supplementation, but my body simply will not allow it. The stomach pain I get from an iron pill is excruciating.
+
+Rather than supplementing, I cook in an iron skillet and eat more spinach.
+
+For me, those little red iron pills ARE poison and my body rejects them.
+Anonymous Coward
+User ID: 1056657
+ United Kingdom
+07/23/2012 09:40 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+It should read too much iron is toxic to your body. We all have trace amounts of the stuff due to the carbon we're made from. Although it should be possible for a being to be based on other elements as well, which would in turn alter the color of your blood etc, and like you say have a bearing on longevity. But I have to admit that although there are guidelines for how much iron your body should have, we all know those guidelines are probably not really 100% accurate. For example i am supposed to be obese, but I am not, I am a very tall, big boned man, with a lot of muscle mass due to my job lifting people, and things, I have the right amount of fat on my body and I have that classic six pack men always seem to want, plus I used to play rugby, which always called for muscular players.
+Dried Up Hag
+
+
+User ID: 1443836
+ United States
+07/23/2012 09:46 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+ 
+10 Melania Facts That Will Stun You
+Inspiredot
+Find Out More >
+I read this article a year or two ago...so far, it is the only "scientific" explanation that I've been able to come across that gives reason for the different blood types.
+
+Unfortunately for me, I am not well educated in this area and can't prove or disprove this person's claims.
+
+But it does make sense.
+
+And my body rejects iron, too. I get very ill from iron supplements, although I had to take them as a small child.
+Anonymous Coward
+User ID: 996508
+ United Kingdom
+07/23/2012 09:49 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+I'm a normal, healthy woman who tends to run slightly anemic. During both my pregnancies, the doctors wanted me to take iron supplementation, but my body simply will not allow it. The stomach pain I get from an iron pill is excruciating.
+
+Rather than supplementing, I cook in an iron skillet and eat more spinach.
+
+For me, those little red iron pills ARE poison and my body rejects them.
+ Quoting: Anonymous Coward 1578124 
+
+
+sounds like ferrous fumarate - not bound to sulphur
+
+check and try ferrous sulphate specifically next time if ever
+
+then ensure it's after food
+
+still a prob then I do not know
+
+ferrous fumarate is nasty stuff for me and does what you said - seems to be bound to carbon - i must research
+Anonymous Coward
+User ID: 9718093
+ United States
+07/23/2012 09:50 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+I'm a normal, healthy woman who tends to run slightly anemic. During both my pregnancies, the doctors wanted me to take iron supplementation, but my body simply will not allow it. The stomach pain I get from an iron pill is excruciating.
+
+Rather than supplementing, I cook in an iron skillet and eat more spinach.
+
+For me, those little red iron pills ARE poison and my body rejects them.
+ Quoting: Anonymous Coward 1578124 
+
+
+I can't take it either.
+Nausea followed by an urgent trip to the bathroom.
+Not to mention a nasty metallic taste.
+
+Sorry for TMI, but my body ain't havin' it.
+Psych
+
+
+User ID: 903456
+ Netherlands
+07/23/2012 09:52 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+Do you know ho many vegetables contain iron?
+
+Are vegetable plants conspiring to kill us?
+Dried Up Hag
+
+
+User ID: 1443836
+ United States
+07/23/2012 09:54 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+Do you know ho many vegetables contain iron?
+
+Are vegetable plants conspiring to kill us?
+ Quoting: Psych 
+
+
+Well, virtually every growing plant that we eat contains iron....somehow I don't get sick from food.
+
+But iron supplements make me very sick.....so maybe it is the amount of iron in them.....
+Anonymous Coward
+User ID: 440442
+ Australia
+07/23/2012 10:00 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+Thanks for posting !
+Sponsored
+Joint Pain? This 'Oil Trick' Works Like Crazy
+Joint Pain? This 'Oil Trick' Works Like Crazy
+Joint Genesis
+Chiropractors Baffled: "30 Second" Stretch Relieves Years of Back Pain (Watch)
+Chiropractors Baffled: "30 Second" Stretch Relieves Years of Back Pain (Watch)
+Back Pain Breakthrough
+15 Biggest Shameful Instagram Lies
+15 Biggest Shameful Instagram Lies
+Inspiredot
+Do This Every Night to Get Rid of Toe Fungus
+Do This Every Night to Get Rid of Toe Fungus
+Fungus Elixir
+10 Melania Facts That Will Stun You
+10 Melania Facts That Will Stun You
+Inspiredot
+Psych
+
+
+User ID: 903456
+ Netherlands
+07/23/2012 10:02 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+Do you know ho many vegetables contain iron?
+
+Are vegetable plants conspiring to kill us?
+ Quoting: Psych 
+
+
+Well, virtually every growing plant that we eat contains iron....somehow I don't get sick from food.
+
+But iron supplements make me very sick.....so maybe it is the amount of iron in them.....
+ Quoting: Dried Up Hag 
+
+
+Could be.
+FullmoonRising
+User ID: 17980175
+ United States
+07/23/2012 10:31 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+Question. Do you think the whole "Ascension" "Raising of vibrations" etc are a cover up for all the poisons and peoples reactions to those poisons?
+Anonymous Coward
+User ID: 20211907
+ United States
+07/23/2012 10:31 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+There is a genetic disease that some may have that come from Caucasian peoples. It's when too much iron accumulates in the blood it can cause organ problems. It's called hemochromatosis and you can get checked for it with a test. The test can check for either a genetic marker (cheaper) that shows that your bloodline may have it or a more expensive test that shows if you do have it.
+
+The cure is easy. Donate blood for a few months. It's real.
+Anonymous Coward
+User ID: 20399685
+ United States
+07/23/2012 08:53 PM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+:bumpz:
+
+Saw this post this morning...THANK YOU OP hf
+Anonymous Coward
+User ID: 19738888
+ Spain
+07/23/2012 09:02 PM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+ 
+10 Melania Facts That Will Stun You
+Inspiredot
+Find Out More >
+Do you know ho many vegetables contain iron?
+
+Are vegetable plants conspiring to kill us?
+ Quoting: Psych 
+
+
+Plants contain iron in its chelated form which is good for us.
+Nicolemare  (OP)
+
+
+User ID: 20291783
+ United States
+07/24/2012 03:24 PM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+This was an incredible read, although I was initially put off by the religous bent,the physical science of the argument made perfect sense. I'm going out to find a copper supplement!
+ Quoting: nope 16503210 
+
+
+I will have to agree with your comment about all the religious stuff, but i set that aside and thought it was quite interesting all the research the author of the article did and what it may actually prove if it is the real deal! It all makes too much sense!
+~"For the total development of the human being, solitude as a means of cultivating sensitivity becomes a necessity. One has to know what it means to be alone, what it is to meditate, what it is to die; and the implications of solitude, of meditation, of death, can be known only by seeking them out. These implications cannot be taught, they must be learned."
+- Krishnamurti ~
+Anonymous Coward
+User ID: 20399685
+ United States
+07/24/2012 03:33 PM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+Hey OP, check out this thread I posted a while back:
+
+Thread: Botticelli's VENUS/"High" MARS - Redheads/Rh Negative Blood - BRAVE's Merida [UPDATE: A change for Merida causes UPROAR!]
+
+I'm linking your thread since this is very significant I believe...thanks again thumbs!
+Nicolemare  (OP)
+
+
+User ID: 7463524
+ United States
+07/27/2012 04:31 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+bump
+~"For the total development of the human being, solitude as a means of cultivating sensitivity becomes a necessity. One has to know what it means to be alone, what it is to meditate, what it is to die; and the implications of solitude, of meditation, of death, can be known only by seeking them out. These implications cannot be taught, they must be learned."
+- Krishnamurti ~
+Cu / Zn balance
+User ID: 18770744
+ Czechia
+07/27/2012 05:03 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+(...)Bio-available copper must be
+replenished to restore health and longevity – to repair the
+DNA damage.(...)
+ Quoting: Nicolemare 
+
+
+Do not forget about Cu / Zn balance.
+Official demand for Zn could be also exaggerated.
+
+[link to en.wikipedia.org]
+The cause of ALS is not known, though an important step toward determining the cause came in 1993 when scientists discovered that mutations in the gene that produces the Cu/Zn superoxide dismutase (SOD1) enzyme were associated with some cases (approximately 20%) of familial ALS. This enzyme is a powerful antioxidant that protects the body from damage caused by superoxide, a toxic free radical generated in the mitochondria. Free radicals are highly reactive molecules produced by cells during normal metabolism again largely by the mitochondria. Free radicals can accumulate and cause damage to both mitochondrial and nuclear DNA and proteins within cells.
+bvndy
+
+
+User ID: 20644442
+ United States
+07/27/2012 05:14 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+ 
+10 Melania Facts That Will Stun You
+Inspiredot
+Find Out More >
+Iron binds to Oxygen, carrying it to cells in the body.
+Your blood is "iron based", like every creature on the planet.
+Iron is not a "poison" although you can get too much,
+but if you dont get any you will DIE.
+Like salt is is nessesary for life.
+So this is without a doubt the silliest (silly silly boy)
+thread EVER, not just on this site , but in the entire universe.
+Its like the global warming scam, where you are trying to outlaw carbon dioxide, what animals exhale and plants use
+You can ignore the consequences of
+your actions, but you cannot ignore
+the RESULTS of the consequences of your actions
+
+Ayn Rand
+Anonymous Coward
+User ID: 20614500
+ United States
+07/27/2012 05:24 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+I agree that iron is necessary to the body, but maybe not to great amounts either. I was very sick from lack of iron, very very weak.It took about a week of adding alot of food based iron to my diet to get it back to normal. I am sure it was an iron deficiency because they drew my blood. I was very low. I think maybe food based iron is better, not so much from red meat though. Follow the Edgar Cayce diet, he knew what he was talking about.
+Anonymous Coward
+User ID: 18372701
+ United States
+07/27/2012 05:24 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+Your "theory" makes no sense because the population is growing each year. Not decreasing.
+Vision Thing
+
+
+User ID: 19727719
+ United States
+07/27/2012 05:31 AM
+
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+I have thought I needed an iron supplement but I really couldn't take it, I read that infections feed on iron? Have you ever read that? That bacteria will multiply if you feed them iron?
+
+I thought it wasn't good for some issues I had with my gums.
+Anonymous Coward
+User ID: 2045712
+ United Kingdom
+07/27/2012 05:35 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+Could it be that air is also a poison...???
+Albeit a very slow acting one, generally taking around 70-80 years to kill you.
+Anonymous Coward
+User ID: 1900594
+ United States
+07/27/2012 07:16 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+ 
+10 Melania Facts That Will Stun You
+Inspiredot
+Find Out More >
+I'm a normal, healthy woman who tends to run slightly anemic. During both my pregnancies, the doctors wanted me to take iron supplementation, but my body simply will not allow it. The stomach pain I get from an iron pill is excruciating.
+
+Rather than supplementing, I cook in an iron skillet and eat more spinach.
+
+For me, those little red iron pills ARE poison and my body rejects them.
+ Quoting: Anonymous Coward 1578124 
+
+
+The prenatals with iron made me sick and they gave me the ones without iron. I have iron in my blood and need no supplement, is what I was told.
+
+We eat food cooked in an iron skillet.
+Anonymous Coward
+User ID: 14135012
+ Ireland
+07/27/2012 07:29 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+I'm a normal, healthy woman who tends to run slightly anemic. During both my pregnancies, the doctors wanted me to take iron supplementation, but my body simply will not allow it. The stomach pain I get from an iron pill is excruciating.
+
+Rather than supplementing, I cook in an iron skillet and eat more spinach.
+
+For me, those little red iron pills ARE poison and my body rejects them.
+ Quoting: Anonymous Coward 1578124 
+
+
+Exactly the same as me. Just putting those red pills in my mouth made me want to throw up. I ignored the doctors. As you say, iron from natural sources is better. Also, Guinness is a great source of iron!
+Anonymous Coward
+User ID: 2045712
+ United Kingdom
+07/27/2012 08:05 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+I'm a normal, healthy woman who tends to run slightly anemic. During both my pregnancies, the doctors wanted me to take iron supplementation, but my body simply will not allow it. The stomach pain I get from an iron pill is excruciating.
+
+Rather than supplementing, I cook in an iron skillet and eat more spinach.
+
+For me, those little red iron pills ARE poison and my body rejects them.
+ Quoting: Anonymous Coward 1578124 
+
+
+Exactly the same as me. Just putting those red pills in my mouth made me want to throw up. I ignored the doctors. As you say, iron from natural sources is better. Also, Guinness is a great source of iron!
+ Quoting: Tess2012 
+
+
+Don't believe the old wives' tales.
+To get enough iron from Guinness to make a difference to your health you would have to drink and awful lot of it, roughly around 15 pints to get the same amount of iron as cereal.
+
+Call me old-fashioned but drinking that much would have a far more negative effect on your body than the iron would have a positive effect.
+Anonymous Coward
+User ID: 1757708
+ United States
+07/27/2012 08:06 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+I take the Raw Iron from Garden of Life, it does not give me any side effects.
+KindaDistorted
+
+
+User ID: 16761062
+ United States
+07/27/2012 08:18 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+Iron binds to Oxygen, carrying it to cells in the body.
+Your blood is "iron based", like every creature on the planet.
+Iron is not a "poison" although you can get too much,
+but if you dont get any you will DIE.
+Like salt is is nessesary for life.
+So this is without a doubt the silliest (silly silly boy)
+thread EVER, not just on this site , but in the entire universe.
+Its like the global warming scam, where you are trying to outlaw carbon dioxide, what animals exhale and plants use
+ Quoting: bvndy 
+
+
+And even oxygen at higher concentration for prolonged periods can cause toxicity. Low iron can cause anemia. I see patients every day who take iron supplements, some are in their late 80's to early 90's. In moderation, iron is good for you.
+"It was easy to love God in all that was beautiful.
+The lessons of deeper knowledge, though, instructed me to embrace God in all things." St Francis of Assisi
+
+The measure of mental health is the disposition to find good everywhere.
+- Ralph Waldo Emerson.
+grasptheuniverse
+
+
+User ID: 20611955
+ Australia
+07/27/2012 06:22 PM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+bumpbump
+caz
+Page 1 2 3 4TopPrevious PageNext Page
+
+Back to Forum
+Post New Thread
+Reply
+View Favorites
+
+Sponsored
+15 Biggest Shameful Instagram Lies
+15 Biggest Shameful Instagram Lies
+Inspiredot
+10 Melania Facts That Will Stun You
+10 Melania Facts That Will Stun You
+Inspiredot
+Cardiologist: One Cup of This Today Can Help Burn Your Belly Fat Like Crazy!
+Cardiologist: One Cup of This Today Can Help Burn Your Belly Fat Like Crazy!
+Puravive
+Unveiling the Top 50 Beach Wonders Around the World
+Unveiling the Top 50 Beach Wonders Around the World
+bakeinto
+Removing Moles & Skin Tags Has Never Been This Easy
+Removing Moles & Skin Tags Has Never Been This Easy
+SkinBliss Cosmetics
+12x More Efficient Than Solar Panels? Prepper's Invention Takes Country by Storm
+12x More Efficient Than Solar Panels? Prepper's Invention Takes Country by Storm
+Solar Switch
+Do This Every Night to Get Rid of Toe Fungus
+Do This Every Night to Get Rid of Toe Fungus
+Fungus Elixir
+Md: Do This Immediately if You Have Diabetes (It Worked Too Well!)
+Md: Do This Immediately if You Have Diabetes (It Worked Too Well!)
+Sugar Defender
+Urologist: Many Men With an Enlarged Prostate Don't Know About This Simple Trick
+Urologist: Many Men With an Enlarged Prostate Don't Know About This Simple Trick
+Titan Flow
+Simple Method Can Restore Your Vision Naturally (Watch)
+Simple Method Can Restore Your Vision Naturally (Watch)
+Vision 20
+Chiropractors Baffled: "30 Second" Stretch Relieves Years of Back Pain (Watch)
+Chiropractors Baffled: "30 Second" Stretch Relieves Years of Back Pain (Watch)
+Back Pain Breakthrough
+Ringing Ears?  Scientists: when Tinnitus Won't Stop, Do This (Watch)
+Ringing Ears? Scientists: when Tinnitus Won't Stop, Do This (Watch)
+ZenCortex
+Related Threads
+1	Big Pharma’s Silence on the One Nutrient To Target Blood Sugar Issues	06/14/19
+2	8000 IUs of vitamin D daily necessary to raise blood levels of "miracle" anti-cancer nutrient, declares groundbreaking new research	03/03/11
+3	Codex Alimentarius - U.N. Plan to Destroy Nutrients in Our Food - Montreal Potholes, Infrastructure	04/04/13
+
+
+
+
+
+GLP
+Disclaimer / Copyright Info  -  Privacy Policy  -  Terms Of Use -  Cancellation Policy / Billing Help
+
+Mail Webmaster with questions or comments about this site.
+Copyright © 1999 - 2024 Godlikeproductions.com
+Page generated in 0.3s (14 queries)
