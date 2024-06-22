@@ -171,3 +171,170 @@ Report Abusive Post
 Report Copyright Violation	
 Re: Copper blood vs. Iron blood
 I'm guessing that the copper bloods get a better education than the iron bloods, yeah?
+
+*
+
+https://www.godlikeproductions.com/forum1/message3175663/pg1
+
+Recently found out i am rh negative and have copper based blood and iron in food is poison for me
+Which foods and drinks should i take to increase copper and mobilize iron out of me that has accumulated? I have felt like shit for a long time and am skinny with dark circles under my eyes.
+
+I heard coffee and chocolate is good but do they have alot of copper in them?
+
+Thread: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+Sponsored by RevcontentTrending Now
+Anonymous Coward (OP)
+User ID: 69328520
+ Hong Kong
+05/14/2016 03:26 PM
+Report Abusive Post
+Report Copyright Violation	
+Re: Recently found out i am rh negative and have copper based blood and iron in food is poison for me
+In fact since 500 years ago we were all rh negative but they didn't manage to poison everybody so we have the different blood types which is bullshit.
+Anonymous Coward
+User ID: 71045447
+ United States
+05/14/2016 03:33 PM
+Report Abusive Post
+Report Copyright Violation	
+Re: Recently found out i am rh negative and have copper based blood and iron in food is poison for me
+they have iron pills for that.
+~~sIcKaNdTwIsTeD~~
+
+
+User ID: 71566178
+ United States
+05/14/2016 03:49 PM
+Report Abusive Post
+Report Copyright Violation	
+Re: Recently found out i am rh negative and have copper based blood and iron in food is poison for me
+ 
+10 Melania Facts That Will Stun You
+Inspiredot
+Find Out More >
+In fact since 500 years ago we were all rh negative but they didn't manage to poison everybody so we have the different blood types which is bullshit.
+ Quoting: Anonymous Coward 69328520 
+
+
+Eat a lot of Bluefin Mercury Tuna.
+
+Last Edited by ~~sIcKaNdTwIsTeD~~ on 05/14/2016 03:50 PM
+“Politicians and diapers must be changed often, and for the same reason.”
+Mark Twain
+Anonymous Coward
+User ID: 72211979
+ Hong Kong
+05/14/2016 04:32 PM
+Report Abusive Post
+Report Copyright Violation	
+Re: Recently found out i am rh negative and have copper based blood and iron in food is poison for me
+In fact since 500 years ago we were all rh negative but they didn't manage to poison everybody so we have the different blood types which is bullshit.
+ Quoting: Anonymous Coward 69328520 
+
+
+Eat a lot of Bluefin Mercury Tuna.
+ Quoting: ~~sIcKaNdTwIsTeD~~ 
+
+
+Don't want the mercury lol.
+Anonymous Coward
+User ID: 72211979
+ Hong Kong
+05/14/2016 04:33 PM
+Report Abusive Post
+Report Copyright Violation	
+Re: Recently found out i am rh negative and have copper based blood and iron in food is poison for me
+I had my fair does of mercury when i was poisoned in childhood by the medical industry with vaccines and again in early puberty.
+Exiled Wolf
+
+
+User ID: 56316576
+ United States
+05/14/2016 04:45 PM
+Report Abusive Post
+Report Copyright Violation	
+Re: Recently found out i am rh negative and have copper based blood and iron in food is poison for me
+What color is your blood?
+Proles and animals are free.
+Sponsored
+Top 50 Amazing Beaches in the World
+Top 50 Amazing Beaches in the World
+bakeinto
+One Cup of This Today Can Help Burn Your Belly Fat Like Crazy!
+One Cup of This Today Can Help Burn Your Belly Fat Like Crazy!
+Puravive
+Removing Moles & Skin Tags Has Never Been This Easy
+Removing Moles & Skin Tags Has Never Been This Easy
+SkinBliss Cosmetics
+Diabetics: Try This Immediately if You Have High Blood Sugar 
+Diabetics: Try This Immediately if You Have High Blood Sugar
+Sugar Defender
+Chiropractors Baffled: "30 Second" Stretch Relieves Years of Back Pain (Watch)
+Chiropractors Baffled: "30 Second" Stretch Relieves Years of Back Pain (Watch)
+Back Pain Breakthrough
+Anonymous Coward
+User ID: 72211979
+ Hong Kong
+05/14/2016 07:58 PM
+Report Abusive Post
+Report Copyright Violation	
+Re: Recently found out i am rh negative and have copper based blood and iron in food is poison for me
+What color is your blood?
+ Quoting: Exiled Wolf 
+
+
+red
+Anonymous Coward
+User ID: 72211979
+ Hong Kong
+05/14/2016 07:59 PM
+Report Abusive Post
+Report Copyright Violation	
+Re: Recently found out i am rh negative and have copper based blood and iron in food is poison for me
+There are 7000 people in this world who are 100% healthy and guess what? They all have blue blood! They also all have AB Negative blood.
+Anonymous Coward
+User ID: 72121167
+ United States
+05/14/2016 09:52 PM
+Report Abusive Post
+Report Copyright Violation	
+Re: Recently found out i am rh negative and have copper based blood and iron in food is poison for me
+Spock is that you:spock
+Sponsored
+10 Melania Facts That Will Stun You
+10 Melania Facts That Will Stun You
+Inspiredot
+Neuropathy & Nerve Damage? Do This Immediately (Watch)
+Neuropathy & Nerve Damage? Do This Immediately (Watch)
+NeuroPure
+Joint Pain? This 'Oil Trick' Works Like Crazy
+Joint Pain? This 'Oil Trick' Works Like Crazy
+Joint Genesis
+Doctor: Ringing Ears? when Tinnitus Won't Stop, Do This (Watch)
+Doctor: Ringing Ears? when Tinnitus Won't Stop, Do This (Watch)
+ZenCortex
+ Exploring the Top 50 Beach Paradises Across the Globe
+Exploring the Top 50 Beach Paradises Across the Globe
+bakeinto
+Anonymous Coward
+User ID: 72121167
+ United States
+05/14/2016 09:53 PM
+Report Abusive Post
+Report Copyright Violation	
+Re: Recently found out i am rh negative and have copper based blood and iron in food is poison for me
+spock
+Impossibly Human
+
+
+User ID: 70049538
+ United States
+05/14/2016 10:18 PM
+Report Abusive Post
+Report Copyright Violation	
+Re: Recently found out i am rh negative and have copper based blood and iron in food is poison for me
+Hemoglobin is iron based. It's what transports oxygen to your cells. Copper helps with iron absorption. Neither has anything to to do with your Rh factor.
+
+Unless you are a mollusk.
+
+Sounds like you are anemic. I would seek a doctor.
