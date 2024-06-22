@@ -3,6 +3,8 @@ Been eating tons of Basil. Feel amazing.
 
 Big copy paste from GLP. Parse it later. 
 
+********************************
+
 https://www.godlikeproductions.com/forum1/message4799117/pg1
 
 Copper blood vs. Iron blood
@@ -338,3 +340,205 @@ Hemoglobin is iron based. It's what transports oxygen to your cells. Copper help
 Unless you are a mollusk.
 
 Sounds like you are anemic. I would seek a doctor.
+
+******************************
+
+Godlike Productions - Discussion Forum
+Users Online Now: 924 (Who's On?)	Visitors Today: 80,204
+Pageviews Today: 156,139	Threads Today: 44	Posts Today: 1,076
+02:55 AM
+
+Directory
+Adv. Search
+Topics
+Forum
+
+
+
+
+Back to Forum
+Post New Thread
+Reply
+View Favorites
+
+Join Now, Free! (& No Ads!) Forgot Your Password?
+Email
+Password
+Remember
+
+Rate this Thread
+Absolute BS Crap Reasonable Nice Amazing
+ 
+Page 1BottomSearch RepliesPrevious PageNext Page
+So Vulcans have two hearts, green blood that is copper based. What earth animal has three hearts and blue blood that is copper based? 
+Anonymous Coward
+User ID: 86323897
+ Hong Kong
+09/21/2023 12:45 AM
+Report Abusive Post
+Report Copyright Violation	
+So Vulcans have two hearts, green blood that is copper based. What earth animal has three hearts and blue blood that is copper based?
+Octopus
+
+
+Aliens? Probably
+Sponsored by RevcontentTrending Now
+Anonymous Coward
+User ID: 86322620
+ United States
+09/21/2023 12:48 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: So Vulcans have two hearts, green blood that is copper based. What earth animal has three hearts and blue blood that is copper based?
+Cuttlefish
+Anonymous Coward
+User ID: 84750856
+ United States
+09/21/2023 12:49 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: So Vulcans have two hearts, green blood that is copper based. What earth animal has three hearts and blue blood that is copper based?
+Cuttlefish
+ Quoting: Anonymous Coward 86322620 
+
+
+Hey that’s my answer.
+
+Cuddle fish yo
+Anonymous Coward
+User ID: 86319266
+ United States
+09/21/2023 01:20 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: So Vulcans have two hearts, green blood that is copper based. What earth animal has three hearts and blue blood that is copper based?
+Horseshoe crab
+Sponsored
+Unveiling the Top 50 Beach Wonders Around the World
+Unveiling the Top 50 Beach Wonders Around the World
+bakeinto
+Joint Pain? This 'Oil Trick' Works Like Crazy
+Joint Pain? This 'Oil Trick' Works Like Crazy
+Joint Genesis
+15 Biggest Shameful Instagram Lies
+15 Biggest Shameful Instagram Lies
+Inspiredot
+Removing Moles & Skin Tags Has Never Been This Easy
+Removing Moles & Skin Tags Has Never Been This Easy
+SkinBliss Cosmetics
+Neuropathy & Nerve Damage? Do This Immediately (Watch)
+Neuropathy & Nerve Damage? Do This Immediately (Watch)
+NeuroPure
+Anonymous Coward
+User ID: 80325012
+ Australia
+09/21/2023 01:22 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: So Vulcans have two hearts, green blood that is copper based. What earth animal has three hearts and blue blood that is copper based?
+Biden
+Anonymous Coward
+User ID: 84750856
+ United States
+09/21/2023 01:43 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: So Vulcans have two hearts, green blood that is copper based. What earth animal has three hearts and blue blood that is copper based?
+Horseshoe crab
+ Quoting: Anonymous Coward 86319266 
+
+
+Yes. ^ incredible.
+
+
+Anonymous Coward
+User ID: 72371036
+ United States
+09/21/2023 02:29 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: So Vulcans have two hearts, green blood that is copper based. What earth animal has three hearts and blue blood that is copper based?
+Octopus
+
+
+Aliens? Probably
+ Quoting: Dr. Jonathan Hemlock 
+
+
+horseshoe crab
+Sponsored
+Diabetics: Try This Immediately if You Have High Blood Sugar 
+Diabetics: Try This Immediately if You Have High Blood Sugar
+Sugar Defender
+10 Melania Facts That Will Stun You
+10 Melania Facts That Will Stun You
+Inspiredot
+Joint Pain? This 'Oil Trick' Works Like Crazy
+Joint Pain? This 'Oil Trick' Works Like Crazy
+Joint Genesis
+Do This Every Night to Get Rid of Toe Fungus
+Do This Every Night to Get Rid of Toe Fungus
+Fungus Elixir
+15 Biggest Shameful Instagram Lies
+15 Biggest Shameful Instagram Lies
+Inspiredot
+Page 1TopPrevious PageNext Page
+
+Back to Forum
+Post New Thread
+Reply
+View Favorites
+
+Sponsored
+15 Biggest Shameful Instagram Lies
+15 Biggest Shameful Instagram Lies
+Inspiredot
+10 Melania Facts That Will Stun You
+10 Melania Facts That Will Stun You
+Inspiredot
+Md: Ringing Ears?  When Tinnitus Won't Stop, Do This (Watch)
+Md: Ringing Ears? When Tinnitus Won't Stop, Do This (Watch)
+ZenCortex
+Fighting Diabetes?  This Discovery Leaves Doctors Speechless!
+Fighting Diabetes? This Discovery Leaves Doctors Speechless!
+Sugar Defender
+Let This Soft Mineral Melt in Your Mouth to Rebuild Teeth and Gums
+Let This Soft Mineral Melt in Your Mouth to Rebuild Teeth and Gums
+Zoracel
+Chiropractors Baffled: "30 Second" Stretch Relieves Years of Back Pain (Watch)
+Chiropractors Baffled: "30 Second" Stretch Relieves Years of Back Pain (Watch)
+Back Pain Breakthrough
+12x More Efficient Than Solar Panels? Prepper's Invention Takes Country by Storm
+12x More Efficient Than Solar Panels? Prepper's Invention Takes Country by Storm
+Solar Switch
+Urologist: Many Men With an Enlarged Prostate Don't Know About This Simple Trick
+Urologist: Many Men With an Enlarged Prostate Don't Know About This Simple Trick
+Titan Flow
+Do This Every Night to Get Rid of Toe Fungus
+Do This Every Night to Get Rid of Toe Fungus
+Fungus Elixir
+Removing Moles & Skin Tags Has Never Been This Easy
+Removing Moles & Skin Tags Has Never Been This Easy
+SkinBliss Cosmetics
+Optometrists Speechless: Do This Immediately to Restore Vision
+Optometrists Speechless: Do This Immediately to Restore Vision
+Vision 20
+
+One Cup of This Today Can Help Burn Your Belly Fat Like Crazy!
+Puravive
+Related Threads
+1	T367, EARTH THREATENING COMET OF VULCAN The B Swarm's 1St Cluster Returns. Doom dates included	06/14/07
+2	After Jesus returns God will create a new earth. And He will also create new planets like Vulcan and Krypton	07/18/19
+3	Paradise California Fire 11/8 (Hell On Earth) On Jupiter's Day (Thursday) = Vulcan Ritual Sacrifice	11/12/18
+4	Nearby Super-Earth Just Discovered - 'Planet Vulcan' Orbits Sun Featured in 'Star Trek'	09/19/18
+
+
+
+
+
+GLP
+Disclaimer / Copyright Info  -  Privacy Policy  -  Terms Of Use -  Cancellation Policy / Billing Help
+
+Mail Webmaster with questions or comments about this site.
+Copyright © 1999 - 2024 Godlikeproductions.com
+Page generated in 0.021s (6 queries)
