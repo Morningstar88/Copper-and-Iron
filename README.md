@@ -1122,3 +1122,727 @@ Disclaimer / Copyright Info  -  Privacy Policy  -  Terms Of Use -  Cancellation 
 Mail Webmaster with questions or comments about this site.
 Copyright © 1999 - 2024 Godlikeproductions.com
 Page generated in 0.3s (14 queries)
+
+*******************
+
+Godlike Productions - Discussion Forum
+Users Online Now: 917 (Who's On?)	Visitors Today: 106,637
+Pageviews Today: 200,841	Threads Today: 67	Posts Today: 1,349
+03:55 AM
+
+Directory
+Adv. Search
+Topics
+Forum
+
+
+
+
+Back to Forum
+Post New Thread
+Reply
+View Favorites
+
+Join Now, Free! (& No Ads!) Forgot Your Password?
+Email
+Password
+Remember
+
+Rate this Thread
+Absolute BS Crap Reasonable Nice Amazing
+ 
+Page 1 2 3 4BottomSearch RepliesPrevious PageNext Page
+Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types! 
+Anonymous Coward
+User ID: 19510487
+ United States
+07/27/2012 06:39 PM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+ 
+15 Biggest Shameful Instagram Lies
+Inspiredot
+Find Out More >
+(...)Bio-available copper must be
+replenished to restore health and longevity – to repair the
+DNA damage.(...)
+ Quoting: Nicolemare 
+
+
+Do not forget about Cu / Zn balance.
+Official demand for Zn could be also exaggerated.
+
+[link to en.wikipedia.org]
+The cause of ALS is not known, though an important step toward determining the cause came in 1993 when scientists discovered that mutations in the gene that produces the Cu/Zn superoxide dismutase (SOD1) enzyme were associated with some cases (approximately 20%) of familial ALS. This enzyme is a powerful antioxidant that protects the body from damage caused by superoxide, a toxic free radical generated in the mitochondria. Free radicals are highly reactive molecules produced by cells during normal metabolism again largely by the mitochondria. Free radicals can accumulate and cause damage to both mitochondrial and nuclear DNA and proteins within cells.
+ Quoting: Cu / Zn balance 18770744 
+
+
+Copper sebacate or chelated copper turns my few white and gray hairs back to their normal brown color.
+Nicolemare  (OP)
+
+
+User ID: 9110125
+ United States
+08/03/2012 12:48 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+(...)Bio-available copper must be
+replenished to restore health and longevity – to repair the
+DNA damage.(...)
+ Quoting: Nicolemare 
+
+
+Do not forget about Cu / Zn balance.
+Official demand for Zn could be also exaggerated.
+
+[link to en.wikipedia.org]
+The cause of ALS is not known, though an important step toward determining the cause came in 1993 when scientists discovered that mutations in the gene that produces the Cu/Zn superoxide dismutase (SOD1) enzyme were associated with some cases (approximately 20%) of familial ALS. This enzyme is a powerful antioxidant that protects the body from damage caused by superoxide, a toxic free radical generated in the mitochondria. Free radicals are highly reactive molecules produced by cells during normal metabolism again largely by the mitochondria. Free radicals can accumulate and cause damage to both mitochondrial and nuclear DNA and proteins within cells.
+ Quoting: Cu / Zn balance 18770744 
+
+
+Copper sebacate or chelated copper turns my few white and gray hairs back to their normal brown color.
+ Quoting: Anonymous Coward 19510487 
+
+
+Wow! VERY Interesting to hear. I am a hairdresser so this ^^^^ would possibly put me out of business from lack of haircolor clients! At the same time, if true for others, it could be a step towards reversing the aging process! :)
+~"For the total development of the human being, solitude as a means of cultivating sensitivity becomes a necessity. One has to know what it means to be alone, what it is to meditate, what it is to die; and the implications of solitude, of meditation, of death, can be known only by seeking them out. These implications cannot be taught, they must be learned."
+- Krishnamurti ~
+Nicolemare  (OP)
+
+
+User ID: 9110125
+ United States
+08/03/2012 12:56 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+Question. Do you think the whole "Ascension" "Raising of vibrations" etc are a cover up for all the poisons and peoples reactions to those poisons?
+ Quoting: FullmoonRising 17980175 
+
+
+Hmmm... Never thought of this but i think its a valid question!cool2
+~"For the total development of the human being, solitude as a means of cultivating sensitivity becomes a necessity. One has to know what it means to be alone, what it is to meditate, what it is to die; and the implications of solitude, of meditation, of death, can be known only by seeking them out. These implications cannot be taught, they must be learned."
+- Krishnamurti ~
+Nicolemare  (OP)
+
+
+User ID: 9110125
+ United States
+08/03/2012 12:58 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+There is a genetic disease that some may have that come from Caucasian peoples. It's when too much iron accumulates in the blood it can cause organ problems. It's called hemochromatosis and you can get checked for it with a test. The test can check for either a genetic marker (cheaper) that shows that your bloodline may have it or a more expensive test that shows if you do have it.
+
+The cure is easy. Donate blood for a few months. It's real.
+ Quoting: D'Light 
+
+
+Thanks for the info!hf
+~"For the total development of the human being, solitude as a means of cultivating sensitivity becomes a necessity. One has to know what it means to be alone, what it is to meditate, what it is to die; and the implications of solitude, of meditation, of death, can be known only by seeking them out. These implications cannot be taught, they must be learned."
+- Krishnamurti ~
+Nicolemare  (OP)
+
+
+User ID: 9110125
+ United States
+08/03/2012 01:04 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+I have thought I needed an iron supplement but I really couldn't take it, I read that infections feed on iron? Have you ever read that? That bacteria will multiply if you feed them iron?
+
+I thought it wasn't good for some issues I had with my gums.
+ Quoting: Vision Thing 
+
+
+No, I have not heard that before but am curious to know more so I'm going to see what i can find!
+~"For the total development of the human being, solitude as a means of cultivating sensitivity becomes a necessity. One has to know what it means to be alone, what it is to meditate, what it is to die; and the implications of solitude, of meditation, of death, can be known only by seeking them out. These implications cannot be taught, they must be learned."
+- Krishnamurti ~
+Anonymous Coward
+User ID: 20583256
+ Canada
+08/03/2012 01:13 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+I take the Raw Iron from Garden of Life, it does not give me any side effects.
+ Quoting: Anonymous Coward 1757708 
+
+
+bump
+Sponsored
+
+One Cup of This Today Can Help Burn Your Belly Fat Like Crazy!
+Puravive
+Dentist: Add This to Your Toothpaste to Help Regrow Your Gums
+Dentist: Add This to Your Toothpaste to Help Regrow Your Gums
+Zoracel
+Unveiling the Top 50 Beach Wonders Around the World
+Unveiling the Top 50 Beach Wonders Around the World
+bakeinto
+Do This Every Night to Get Rid of Toe Fungus
+Do This Every Night to Get Rid of Toe Fungus
+Fungus Elixir
+Chiropractors Baffled: "30 Second" Stretch Relieves Years of Back Pain (Watch)
+Chiropractors Baffled: "30 Second" Stretch Relieves Years of Back Pain (Watch)
+Back Pain Breakthrough
+bannedfornoreason
+
+
+User ID: 7138989
+ United States
+08/03/2012 01:16 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+eh are you just referring to iron taken as a supplement or ALL iron, ie even the ones naturally present in food?
+
+Wtf.
+
+And copper can accumulate such that it causes copper toxicity, and this is seen as one of the things which occur with adrenal insufficiency.
+bannedfornoreason
+MindShaft
+
+
+User ID: 1554827
+ United States
+08/03/2012 01:25 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+Iron binds to Oxygen, carrying it to cells in the body.
+Your blood is "iron based", like every creature on the planet.
+Iron is not a "poison" although you can get too much,
+but if you dont get any you will DIE.
+Like salt is is nessesary for life.
+So this is without a doubt the silliest (silly silly boy)
+thread EVER, not just on this site , but in the entire universe.
+Its like the global warming scam, where you are trying to outlaw carbon dioxide, what animals exhale and plants use
+ Quoting: bvndy 
+
+
+Yay! The voice of reason.
+
+Iron is the central element in h(a)emoeglobin - the red blood corpuscles that transport oxygen throughout your body (veins/arteries/capillaries/tissues/cells) and enable your metabolism/cellular respiration.
+
+Yes, it should be ingested in the form of colloidal iron - as transmuted by osmotic uptake via vegetables, or by eating the organically stored colloidal iron contained in the meat of animals that have previously eaten and metabolized these colloidal mineral sources.
+
+Shit - you want to raise a REAL issue, - look at magnesium deficiency in the Western diet. Magnesium plays a role in at least 75% of biologically significant metabolic pathways through enzymatic reaction, and 95% of western diets are chronically deficient in magnesium due to modern food processing technologies.
+
+READ NON-FICTION - DON'T WATCH TV. WAKE UP, PEOPLE - THE INFORMATION IS OUT THERE.
+"People have been conditioned to ridicule all that they are incapable of understanding." Goethe
+
+"None are more hopelessly enslaved than those who falsely believe that they are free." Goethe
+Bowyn Aerrow
+
+
+User ID: 17665927
+ United States
+08/03/2012 01:25 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+Iron is essential for blood.
+
+The reason why your blood is read is due to the iron. The erythrocytes (Red blood cells) make up the dominate part of your blood, they are based on the iron atom.
+
+Hemocyanin hemoglobin (copper based blood cells) are low in humans, and are found predominately in shell fish and in insects to a large degree. Those are copper based and produce bluish/greenish colored blood when red blood cells are not present.
+
+Yes we need copper as well for healthy blood, However few of us require copper supplements.
+
+Hemocyanin is a complex protienish type cell, it's main purpose is in respiration thus its a respiratory protein.
+
+The reality is that the trace elements are being stripped from top soils on farms. In order to grow plants they use three chemicals (fertilizers) which are bereft of trace elements. A lot of the farmland now lacks zinc, magnesium, copper and other trace elements that the body needs.
+
+What we now have is a lack of elements in our daily diets. And taking supplements does not help, most of the supplements are essentially ground up elements, not water dissolved elements as you would find in plants that break down the denser molecules into single atoms and deposit those atoms of elements in their tissues which then recombine with things like oxygen to make oxides.
+
+Taking Iron does not deplete copper. Not eating plants that have copper in them causes copper depletion.
+
+Boosting with B-12 and eating things high in copper is the only way to fix that. Sesame seeds, Chocolate, Liver all of these are high in copper. and more often than not high in iron as well as the two metal go pretty much hand in hand in lifeforms on earth.
+"My Dog, its full of fleas!"
+-David Bowwow
+
+
+“A paranoid is someone who knows a little of what's going on. A psychotic is a guy who's just found out what's going on.”
+- William S. Burroughs
+bannedfornoreason
+
+
+User ID: 7138989
+ United States
+08/03/2012 01:30 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+WAIT WAIT WAIT WTF!!!??!?!
+
+
+There seems to be some discussion about there existing blue copper based blood humans!
+
+Hm.. maybe Iron is only in food because it's common but does that mean it's entirely beneficial, or even natural, or optimal?
+
+Perhaps crops could be make iron-less and contain more copper by altering the soil it is grown in?
+
+Last Edited by bannedfornoreason on 08/03/2012 01:31 AM
+bannedfornoreason
+bannedfornoreason
+
+
+User ID: 7138989
+ United States
+08/03/2012 01:38 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+ 
+10 Melania Facts That Will Stun You
+Inspiredot
+Find Out More >
+But seriously most of our foods contain copper so.
+
+Unless it was in our ancient past spread around all the soil in the world to make all the food rich in copper.
+
+So what about the supposed copper based blood types then, if they ate iron rich foods, wouldn't it suck for them?
+bannedfornoreason
+MindShaft
+
+
+User ID: 1554827
+ United States
+08/03/2012 01:44 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+Iron is essential for blood.
+
+The reason why your blood is read is due to the iron. The erythrocytes (Red blood cells) make up the dominate part of your blood, they are based on the iron atom.
+
+Hemocyanin hemoglobin (copper based blood cells) are low in humans, and are found predominately in shell fish and in insects to a large degree. Those are copper based and produce bluish/greenish colored blood when red blood cells are not present.
+
+Yes we need copper as well for healthy blood, However few of us require copper supplements.
+
+Hemocyanin is a complex protienish type cell, it's main purpose is in respiration thus its a respiratory protein.
+
+The reality is that the trace elements are being stripped from top soils on farms. In order to grow plants they use three chemicals (fertilizers) which are bereft of trace elements. A lot of the farmland now lacks zinc, magnesium, copper and other trace elements that the body needs.
+
+What we now have is a lack of elements in our daily diets. And taking supplements does not help, most of the supplements are essentially ground up elements, not water dissolved elements as you would find in plants that break down the denser molecules into single atoms and deposit those atoms of elements in their tissues which then recombine with things like oxygen to make oxides.
+
+Taking Iron does not deplete copper. Not eating plants that have copper in them causes copper depletion.
+
+Boosting with B-12 and eating things high in copper is the only way to fix that. Sesame seeds, Chocolate, Liver all of these are high in copper. and more often than not high in iron as well as the two metal go pretty much hand in hand in lifeforms on earth.
+ Quoting: Bowyn Aerrow 
+
+
+I agree, to a point.
+
+However, I'd put to you that taking supplements that ARE plant based are NOT a waste of effort.
+
+How do you feel about supplementing a diet with a concentrated form of bio-available nutrients in the form of a eucaryotic single cell algae (such as chlorella) where you are consuming the whole plant- if it is cultivated in sanitary conditions?
+"People have been conditioned to ridicule all that they are incapable of understanding." Goethe
+
+"None are more hopelessly enslaved than those who falsely believe that they are free." Goethe
+Anonymous Coward
+User ID: 9102908
+ Australia
+08/03/2012 01:53 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+There is a genetic disease that some may have that come from Caucasian peoples. It's when too much iron accumulates in the blood it can cause organ problems. It's called hemochromatosis and you can get checked for it with a test. The test can check for either a genetic marker (cheaper) that shows that your bloodline may have it or a more expensive test that shows if you do have it.
+
+The cure is easy. Donate blood for a few months. It's real.
+ Quoting: D'Light 
+
+This^^^
+
+Hemochromatosis is indeed hereditary and a only a few of my family members have it so its passed down, but not to everyone.
+
+My father was the first to be diagnosed and he goes to the Dr regularly to have blood taken out.
+
+My twin sister also has it, but she generally doesn't need to take any action as the Dr advised that she loses sufficient iron every month with her period.
+
+My two elder brothers and I were cleared after being tested.
+Anonymous Coward
+User ID: 16096116
+ United States
+08/03/2012 02:01 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+putin
+Anonymous Coward
+User ID: 18376798
+ United States
+08/03/2012 02:19 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+I had a blood test done last year and my iron levels were extremely low. The only 2 types of iron that didn't have an adverse effect on me were iron bisglycinate and the Floridix brand. The other types of iron I tried made me itch all over.
+Anonymous Coward
+User ID: 8640456
+ United States
+08/03/2012 02:28 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+ 
+10 Melania Facts That Will Stun You
+Inspiredot
+Find Out More >
+Iron binds to Oxygen, carrying it to cells in the body.
+Your blood is "iron based", like every creature on the planet.
+Iron is not a "poison" although you can get too much,
+but if you dont get any you will DIE.
+Like salt is is nessesary for life.
+So this is without a doubt the silliest (silly silly boy)
+thread EVER, not just on this site , but in the entire universe.
+Its like the global warming scam, where you are trying to outlaw carbon dioxide, what animals exhale and plants use
+ Quoting: bvndy 
+
+
+And even oxygen at higher concentration for prolonged periods can cause toxicity. Low iron can cause anemia. I see patients every day who take iron supplements, some are in their late 80's to early 90's. In moderation, iron is good for you.
+ Quoting: KindaDistorted 
+
+
+Yeah, Im very religious but Im not buying this just because he throws my religion into it. He applied scriptures that don't have anything to do with what he's applying them to. Sure, we live in a fallen world and there are some genuine conspiracies but we're aren't to be afraid of them.
+MindShaft
+
+
+User ID: 1554827
+ United States
+08/03/2012 02:38 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+putin
+ Quoting: Anonymous Coward 16096116 
+
+
+Isn't it way past your bedtime?
+"People have been conditioned to ridicule all that they are incapable of understanding." Goethe
+
+"None are more hopelessly enslaved than those who falsely believe that they are free." Goethe
+Anonymous Coward
+User ID: 2122560
+ United States
+08/03/2012 02:38 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+Your body draws in iron on its own, so it does need it. It may just have enough if it rejects iron supplaments, I dont know. I have not heard of anyone dying of an iron overdose
+MindShaft
+
+
+User ID: 1554827
+ United States
+08/03/2012 03:28 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+Hemochromatosis is a serious condition.
+
+However, iron in your diet will be present in two different forms: elemental, or colloidal; - 'pre-digested'.
+
+Your body is genetically programmed to process, assimilate and metabolically utilize colloidal iron from plant or animal origins in their colloidal format.
+
+'Elemental' iron ranks as one of the most toxic of metals introduced into the human diet: - especially for those who are susceptible to 'overload' uptake due to a dietary deficiency in its agonistic counterparts.
+
+It's a complex biochemical arrangement, and this is not the space in which to discuss this (nor should you take advice from internet keyboard jockeys).
+
+My take: Never take an isolated iron supplement, un-supervised, unless it's a component of a regimen suggested by a qualified health professional who understands the difference in the two forms (elemental and colloidal).
+
+Flame away, pharmatards ...
+"People have been conditioned to ridicule all that they are incapable of understanding." Goethe
+
+"None are more hopelessly enslaved than those who falsely believe that they are free." Goethe
+Anonymous Coward
+User ID: 20490216
+ United States
+08/03/2012 03:31 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+Poison?
+
+If we all came from a trail of dust in space, what do you think that/those components are?
+
+
+Here, I hate to quote wiki, but it's all I have the energy for at this moment:
+
+Iron is pervasive, but particularly rich sources of dietary iron include red meat, lentils, beans, poultry, fish, leaf vegetables, watercress, tofu, chickpeas, black-eyed peas, blackstrap molasses, fortified bread, and fortified breakfast cereals. Iron in low amounts is found in molasses, teff and farina. Iron in meat (heme iron) is more easily absorbed than iron in vegetables.[58] Although some studies suggest that heme/hemoglobin from red meat has effects which may increase the likelihood of colorectal cancer,[59][60] there is still some controversy,[61] and even a few studies suggesting that there is not enough evidence to support such claims.[62]
+Iron provided by dietary supplements is often found as iron(II) fumarate, although iron sulfate is cheaper and is absorbed equally well. Elemental iron, or reduced iron, despite being absorbed at only one third to two thirds the efficiency (relative to iron sulfate),[63] is often added to foods such as breakfast cereals or enriched wheat flour. Iron is most available to the body when chelated to amino acids[64] and is also available for use as a common iron supplement. Often the amino acid chosen for this purpose is the cheapest and most common amino acid, glycine, leading to "iron glycinate" supplements.[65] The Recommended Dietary Allowance (RDA) for iron varies considerably based on age, gender, and source of dietary iron (heme-based iron has higher bioavailability).[66] Infants may require iron supplements if they are bottle-fed cow's milk.[67] Blood donors and pregnant women are at special risk of low iron levels and are often advised to supplement their iron intake.[68]
+Anonymous Coward
+User ID: 20490216
+ United States
+08/03/2012 03:32 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+ 
+10 Melania Facts That Will Stun You
+Inspiredot
+Find Out More >
+Iron uptake is tightly regulated by the human body, which has no regulated physiological means of excreting iron. Only small amounts of iron are lost daily due to mucosal and skin epithelial cell sloughing, so control of iron levels is mostly by regulating uptake.[74] Regulation of iron uptake is impaired in some people as a result of a genetic defect that maps to the HLA-H gene region on chromosome 6. In these people, excessive iron intake can result in iron overload disorders, such as hemochromatosis. Many people have a genetic susceptibility to iron overload without realizing it or being aware of a family history of the problem. For this reason, it is advised that people do not take iron supplements unless they suffer from iron deficiency and have consulted a doctor. Hemochromatosis is estimated to cause disease in between 0.3 and 0.8% of Caucasians.[75]
+MRI finds that iron accumulates in the hippocampus of the brains of those with Alzheimer's disease and in the substantia nigra of those with Parkinson disease.[76]
+[edit]
+MindShaft
+
+
+User ID: 1554827
+ United States
+08/03/2012 03:41 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+Poison?
+
+If we all came from a trail of dust in space, what do you think that/those components are?
+
+
+Here, I hate to quote wiki, but it's all I have the energy for at this moment:
+
+Iron is pervasive, but particularly rich sources of dietary iron include red meat, lentils, beans, poultry, fish, leaf vegetables, watercress, tofu, chickpeas, black-eyed peas, blackstrap molasses, fortified bread, and fortified breakfast cereals. Iron in low amounts is found in molasses, teff and farina. Iron in meat (heme iron) is more easily absorbed than iron in vegetables.[58] Although some studies suggest that heme/hemoglobin from red meat has effects which may increase the likelihood of colorectal cancer,[59][60] there is still some controversy,[61] and even a few studies suggesting that there is not enough evidence to support such claims.[62]
+Iron provided by dietary supplements is often found as iron(II) fumarate, although iron sulfate is cheaper and is absorbed equally well. Elemental iron, or reduced iron, despite being absorbed at only one third to two thirds the efficiency (relative to iron sulfate),[63] is often added to foods such as breakfast cereals or enriched wheat flour. Iron is most available to the body when chelated to amino acids[64] and is also available for use as a common iron supplement. Often the amino acid chosen for this purpose is the cheapest and most common amino acid, glycine, leading to "iron glycinate" supplements.[65] The Recommended Dietary Allowance (RDA) for iron varies considerably based on age, gender, and source of dietary iron (heme-based iron has higher bioavailability).[66] Infants may require iron supplements if they are bottle-fed cow's milk.[67] Blood donors and pregnant women are at special risk of low iron levels and are often advised to supplement their iron intake.[68]
+ Quoting: Anonymous Coward 20490216 
+
+
+
+All well and good ...
+
+BUT - investigate mineral antagonism from a dietary standpoint - 'The Mineral Wheel' as proposed by Dr. Robert Erdmann (et al.,) in "The Amino Acid Revolution"
+
+Then investigate the decimation of dietary essential minerals in crop-producing soils due to the effects of intensive 'NPK' fertilizer usage over the past 60 years or so.
+
+(Edit to add: NPK = Nitrogen/Phosphorus/Potassium additives)
+
+Report back once you've done your 'research'.
+
+Is all 'as it seems' ?
+
+Hint: 90% of Americans are magnesium deficient ...
+
+Last Edited by MindShaft on 08/03/2012 03:46 AM
+"People have been conditioned to ridicule all that they are incapable of understanding." Goethe
+
+"None are more hopelessly enslaved than those who falsely believe that they are free." Goethe
+MindShaft
+
+
+User ID: 1554827
+ United States
+08/03/2012 04:07 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+An interesting sidebar:
+
+Iron forms the core element of hemoglobin; - our 'lifeblood'
+
+Magnesium is the core component of chlorophyll - every plant's 'lifeblood'.
+
+Structurally. these compounds are almost identical.
+
+The only major difference between our 'blood' and plant blood is a few numbers on the Periodic Table of the Elements.
+
+Ponder ... deeply.
+
+Discuss.
+"People have been conditioned to ridicule all that they are incapable of understanding." Goethe
+
+"None are more hopelessly enslaved than those who falsely believe that they are free." Goethe
+Anonymous Coward
+User ID: 21180229
+ Estonia
+08/03/2012 04:15 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+[link to www.unveilingthem.com]
+Poisoning of Mankind - Blood Types, Copper Deficiency, Evolution Theory & Illuminati
+
+
+
+Iron is NOT a nutrient, it is a poison. Iron replaces copper in the blood and tissue proteins and accumulates in multiple locations of the body, causing destruction and accelerating aging. Bio-available copper must be replenished to restore health and longevity – to repair the DNA damage.
+
+
+The Blood Typing Farce: Nearly 95% of the population, who have blood type O and A which are the thinnest blood and lowest blood volume, and blood type B, have iron poisoning and copper deficiency, due to accumulation of iron from iron added to the food/food chain, iron uptake facilitators and copper depleters/antagonists that they have thoroughly saturated the food and water supply with. (See: USDA Food Supply Nutrient (1909-2005) Schedules, and additional iron & copper comments below.) These are in addition to radiation and vaccine poisons, (Military: see Anthrax Vaccine comments), which are quicker and more effective methods for depleting copper, and are primary methods for expediting our death.
+
+Vaccines were designed to implant sub-microscopic, nanoparticle parasites, (termed “viruses”), and adjuvant to deplete liver copper. The parasites settle, thrive & replicate in the presence of iron deposits and copper deficiency, and accelerate the destruction process by increasing the synthesis rate of abnormal toxic proteins; the consequences being an increasingly defective blood supply, inflammation, secondary bacterial infections, lesions, degeneration, fibrosis, tumors, and cancer.
+The purpose of depleting liver copper with vaccine adjuvant: When the body is invaded by pathogens/viruses, copper is mobilized from the liver in order to neutralize/destroy them. Bacteria and viruses transition from the dormant state (time of injection) to the active state of thriving and replicating as iron stores increase and copper status depletes. [link to www.unveilingthem.com]
+The measles vaccine pathogen has been found in diseased colons of patients -- iron is taken into the body via ingestion and the gastrointestinal tract, and thus is a location for a greater proportion of iron accumulation. Measles settles in the mucosal linings of tissues/organs and other locations of iron deposits – that is, where copper has been depleted or displaced from. The parasite (“virus”) implanted by the vaccines coupled with the iron deposits accelerates the synthesis rate of abnormal toxic proteins; the consequences being inflammation, secondary bacterial infections, lesions, degeneration, tumors and cancer. The synthesis rate of toxic proteins increases as copper status depletes and iron stores increase, overwhelming the immune system and inevitably causing the demise of the host. (The MMR Measles vaccine in addition to other vaccines was initially forced on the population beginning with the baby boomers, those born between 1946 and 1964.)
+MindShaft
+
+
+User ID: 1554827
+ United States
+08/03/2012 04:21 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+[link to www.unveilingthem.com]
+Poisoning of Mankind - Blood Types, Copper Deficiency, Evolution Theory & Illuminati
+
+
+
+Iron is NOT a nutrient, it is a poison. Iron replaces copper in the blood and tissue proteins and accumulates in multiple locations of the body, causing destruction and accelerating aging. Bio-available copper must be replenished to restore health and longevity – to repair the DNA damage.
+
+
+The Blood Typing Farce: Nearly 95% of the population, who have blood type O and A which are the thinnest blood and lowest blood volume, and blood type B, have iron poisoning and copper deficiency, due to accumulation of iron from iron added to the food/food chain, iron uptake facilitators and copper depleters/antagonists that they have thoroughly saturated the food and water supply with. (See: USDA Food Supply Nutrient (1909-2005) Schedules, and additional iron & copper comments below.) These are in addition to radiation and vaccine poisons, (Military: see Anthrax Vaccine comments), which are quicker and more effective methods for depleting copper, and are primary methods for expediting our death.
+
+Vaccines were designed to implant sub-microscopic, nanoparticle parasites, (termed “viruses”), and adjuvant to deplete liver copper. The parasites settle, thrive & replicate in the presence of iron deposits and copper deficiency, and accelerate the destruction process by increasing the synthesis rate of abnormal toxic proteins; the consequences being an increasingly defective blood supply, inflammation, secondary bacterial infections, lesions, degeneration, fibrosis, tumors, and cancer.
+The purpose of depleting liver copper with vaccine adjuvant: When the body is invaded by pathogens/viruses, copper is mobilized from the liver in order to neutralize/destroy them. Bacteria and viruses transition from the dormant state (time of injection) to the active state of thriving and replicating as iron stores increase and copper status depletes. [link to www.unveilingthem.com]
+The measles vaccine pathogen has been found in diseased colons of patients -- iron is taken into the body via ingestion and the gastrointestinal tract, and thus is a location for a greater proportion of iron accumulation. Measles settles in the mucosal linings of tissues/organs and other locations of iron deposits – that is, where copper has been depleted or displaced from. The parasite (“virus”) implanted by the vaccines coupled with the iron deposits accelerates the synthesis rate of abnormal toxic proteins; the consequences being inflammation, secondary bacterial infections, lesions, degeneration, tumors and cancer. The synthesis rate of toxic proteins increases as copper status depletes and iron stores increase, overwhelming the immune system and inevitably causing the demise of the host. (The MMR Measles vaccine in addition to other vaccines was initially forced on the population beginning with the baby boomers, those born between 1946 and 1964.)
+ Quoting: Anonymous Coward 21180229 
+
+
+Then; why - please, PLEASE tell me - is the human red blood cell - the corpuscle - dependent on iron to transport oxygen to every cell in your body?
+"People have been conditioned to ridicule all that they are incapable of understanding." Goethe
+
+"None are more hopelessly enslaved than those who falsely believe that they are free." Goethe
+Anonymous Coward
+User ID: 7892052
+ United States
+08/03/2012 04:23 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+Well its not working too well....were still living the normal lenth of lives.
+Sponsored
+Urologist: Do This Immediately if You Have Enlarged Prostate (Watch)
+Urologist: Do This Immediately if You Have Enlarged Prostate (Watch)
+Titan FLow
+Do This Every Night to Get Rid of Toe Fungus
+Do This Every Night to Get Rid of Toe Fungus
+Fungus Elixir
+Chiropractors Baffled: "30 Second" Stretch Relieves Years of Back Pain (Watch)
+Chiropractors Baffled: "30 Second" Stretch Relieves Years of Back Pain (Watch)
+Back Pain Breakthrough
+12x More Efficient Than Solar Panels? Prepper's Invention Takes Country by Storm
+12x More Efficient Than Solar Panels? Prepper's Invention Takes Country by Storm
+Solar Switch
+15 Biggest Shameful Instagram Lies
+15 Biggest Shameful Instagram Lies
+Inspiredot
+MindShaft
+
+
+User ID: 1554827
+ United States
+08/03/2012 04:23 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+How do you explain iron-deficiency anemia?
+"People have been conditioned to ridicule all that they are incapable of understanding." Goethe
+
+"None are more hopelessly enslaved than those who falsely believe that they are free." Goethe
+MindShaft
+
+
+User ID: 1554827
+ United States
+08/03/2012 04:29 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+OP - have you even looked at the effects of magnesium defeciency?
+
+There are a lot of clues to chronic disease right there.
+
+And - quit quoting 'scientific' journals, until you can ascertain who might be paying their bills.
+
+Wake up.
+"People have been conditioned to ridicule all that they are incapable of understanding." Goethe
+
+"None are more hopelessly enslaved than those who falsely believe that they are free." Goethe
+Anonymous Coward
+User ID: 17689295
+ United States
+08/03/2012 04:31 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+Iron supplements...without them I'm dragging all day. But then again I am borderline anemic.
+Anonymous Coward
+User ID: 21180229
+ Estonia
+08/03/2012 04:35 AM
+Report Abusive Post
+Report Copyright Violation	
+Re: Iron is NOT a nutrient, it is a poison! Depopulation Plan & Blood Types!
+Then; why - please, PLEASE tell me - is the human red blood cell - the corpuscle - dependent on iron to transport oxygen to every cell in your body?
+ Quoting: MindShaft 
+
+
+How do you explain iron-deficiency anemia?
+ Quoting: MindShaft 
+
+
+
+"Iron is essential for oxygen transport in the blood": Iron attracts oxygen, thereby causing free radicals, and facilitating the growth of parasites; subsequently stimulating the growth of tumors, cancers and bacteria.
+
+
+
+"Iron Deficiency Anemia (IDA)": IDA is characterized as abnormal size/count of blood cells, accompanied by low blood iron levels. IDA is often described as being secondary to copper deficiency as well as to another concurrent disease or condition. Documentation also indicates that copper is needed to mobilize iron from deposit ("storage") sites into the blood. (This is where the copper deficiency comes in.) So, sub-optimal levels of copper will mobilize some iron from deposit locations into the blood; however, will not be enough to excrete the iron. If optimal healthy levels of copper are taken in and maintained in the diet, ALL the iron would be mobilized out of deposits, neutralized and excreted from the body. At the same time copper would replace the iron in the blood and tissue proteins, build normal blood cells to healthy levels, and neutralize the blood pH to 7.00.
+Page 1 2 3 4TopPrevious PageNext Page
+
+Back to Forum
+Post New Thread
+Reply
+View Favorites
+
+Sponsored
+15 Biggest Shameful Instagram Lies
+15 Biggest Shameful Instagram Lies
+Inspiredot
+Dentist: Add This to Your Toothpaste to Help Regrow Your Gums
+Dentist: Add This to Your Toothpaste to Help Regrow Your Gums
+Zoracel
+Unveiling the Top 50 Beach Wonders Around the World
+Unveiling the Top 50 Beach Wonders Around the World
+bakeinto
+Fighting Diabetes?  This Discovery Leaves Doctors Speechless!
+Fighting Diabetes? This Discovery Leaves Doctors Speechless!
+Sugar Defender
+Do This Every Night to Get Rid of Toe Fungus
+Do This Every Night to Get Rid of Toe Fungus
+Fungus Elixir
+12x More Efficient Than Solar Panels? Prepper's Invention Takes Country by Storm
+12x More Efficient Than Solar Panels? Prepper's Invention Takes Country by Storm
+Solar Switch
+Chiropractors Baffled: "30 Second" Stretch Relieves Years of Back Pain (Watch)
+Chiropractors Baffled: "30 Second" Stretch Relieves Years of Back Pain (Watch)
+Back Pain Breakthrough
+Removing Moles & Skin Tags Has Never Been This Easy
+Removing Moles & Skin Tags Has Never Been This Easy
+SkinBliss Cosmetics
+Ringing Ears?  Scientists: when Tinnitus Won't Stop, Do This (Watch)
+Ringing Ears? Scientists: when Tinnitus Won't Stop, Do This (Watch)
+ZenCortex
+Urologist: Many Men With an Enlarged Prostate Don't Know About This Simple Trick
+Urologist: Many Men With an Enlarged Prostate Don't Know About This Simple Trick
+Titan Flow
+One Cup of This Today Can Help Burn Your Belly Fat Like Crazy!
+One Cup of This Today Can Help Burn Your Belly Fat Like Crazy!
+Puravive
+Joint Pain? This 'Oil Trick' Works Like Crazy
+Joint Pain? This 'Oil Trick' Works Like Crazy
+Joint Genesis
+Related Threads
+1	Big Pharma’s Silence on the One Nutrient To Target Blood Sugar Issues	06/14/19
+2	8000 IUs of vitamin D daily necessary to raise blood levels of "miracle" anti-cancer nutrient, declares groundbreaking new research	03/03/11
+3	Codex Alimentarius - U.N. Plan to Destroy Nutrients in Our Food - Montreal Potholes, Infrastructure	04/04/13
+
+
+
+
+
+GLP
+Disclaimer / Copyright Info  -  Privacy Policy  -  Terms Of Use -  Cancellation Policy / Billing Help
+
+Mail Webmaster with questions or comments about this site.
+Copyright © 1999 - 2024 Godlikeproductions.com
+Page generated in 0.302s (9 queries)
